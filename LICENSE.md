@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with exclusive Scripts for math for brainrots, the #1 Script. Includes custom skins and invisibility
 
 
 
